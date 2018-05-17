@@ -21,7 +21,7 @@ Mega Moolahin teema sijoittuu Savannille ja kuten voit varmasti arvata, tulet ko
 
 Mega Moolah on progressiivinen jättipottipeli, mikä tarkoittaa sitä, että se voi mullistaa elämäsi sekunneissa. Voit voittaa seuraavien sekuntien aikana [huikeita miljoonavoittoja](https://www.youtube.com/watch?v=zeU0mc6AQxE) ja tämä kolikkopeli onkin kuuluisa siitä, että se on tehnyt vuosien varrella lukuisia uusia miljonäärejä. Kaikkien aikojen suurin koskaan voitettu jättipotti on 17,8 miljoonaa euroa. 
 
-[![Mega moolah kasinobonuksia](http://img.youtube.com/vi/zeU0mc6AQxE/0.jpg)](http://www.youtube.com/watch?v=zeU0mc6AQxE)
+[![Mega moolah kasinobonuksia](https://img.youtube.com/vi/zeU0mc6AQxE/0.jpg)](http://www.youtube.com/watch?v=zeU0mc6AQxE)
 
 
 ## Yhteenveto
